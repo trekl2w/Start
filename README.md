@@ -1,3 +1,3 @@
 # Start
 
-projet is about new way
+projet is about new way of
