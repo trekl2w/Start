@@ -1,3 +1,3 @@
 # Start
 
-projet is about new way of
+projet is about new way of systematization
